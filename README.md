@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Yassine Douadi!  
+# Hi there, I'm Yassine Daoudi! 👋 
 
 🚀 **IT Specialist | Cybersecurity Enthusiast | Software Developer**  
 
